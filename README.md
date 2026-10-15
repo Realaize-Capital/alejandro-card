@@ -1,4 +1,4 @@
-# Tarjeta digital - Alejandro García
+# Tarjeta digital - Alejandro García Míguez
 
 Head of Origination & Expansion - Realaize Capital  
 https://alejandro.realaize.capital
